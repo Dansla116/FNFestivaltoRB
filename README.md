@@ -177,6 +177,7 @@ Below is a list of all songs currently completed. (Hand authored)
 * Rick James - Super Freak
 * Rob Zombie - Dragula
 * Ron Wasserman - Go Go Power Rangers
+* ROSÉ - APT. (ft. Bruno Mars)
 * Run-DMC - Walk This Way (ft. Aerosmith)
 * ryo (supercell) - Melt (ft. Hatsune Miku)
 * Sabrina Carpenter - Please Please Please
